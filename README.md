@@ -4,4 +4,4 @@ ORAZ wersji ReCraftRed!
 by CraftR
 
 
-UWAGA! Jest  to ogólnie publiczna BAZA ikon, więc te nieużyte też mogą się tu pojawić!
+UWAGA! Jest  to ogólnie publiczna BAZA ikon, więc te nieużyte też mogą się tu pojawić! Możesz czerpać!
